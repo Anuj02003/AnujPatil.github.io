@@ -1,2 +1,0 @@
-# AnujPatil.github.io
-Portfolio
